@@ -10,4 +10,4 @@ video, then the last frame will simply freeze.
 
 video demonstration effects on youtube https://youtu.be/qOUhqjwwuCQ
 Like maaaaaan!!!!! 
-if not difficult, share bitcoin 0.00051 to wallet 3AAFoA19oxsDg1dEyXYQT5VoqPfBTiYLUx
+if not difficult, share any GRAM to wallet UQCsHgrwYOgxlMK3dppgQo2QQDMCJeGmKsxgNdCft6hkdfmt
